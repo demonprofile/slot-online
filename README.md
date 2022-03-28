@@ -1,5 +1,5 @@
 # Daftar Situs Slot Online Terbaik
-[Daftar Slot](https://139.162.1.231/mobile/register?ref=nAc9Pam&utm_source=github&utm_medium=github&utm_campaign=organic_github)
+[Daftar Slot](https://bit.ly/3qJo7pL)
 > FREE SLOT 100%
 
 > Event Mix Parlay & Win Streak - SBO & IBC
